@@ -2,7 +2,7 @@
 - 👀 I’m interested in topics around workplace safety
 - 🌱 I’m currently learning how to use GitHub ;-)
 - 💞️ I’m looking to collaborate on topics on chemical laboratory safety
-- 📫 How to reach me samuele.giani_at_empa.ch
+- 📫 How to reach me samuele.giani_at_gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I am living in Switzerland
 
